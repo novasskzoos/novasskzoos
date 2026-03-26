@@ -9,8 +9,8 @@
 <p align="center">
 
 <p align="center">
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
-<p 
+﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ <sub><a href="https://novasskzoos.atabook.org/">新𝖻𝗈𝗈𝗄</a></sub> ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+</p>
 <p align="center">
   <sub>𝑖nfp-t . 𝑢nfortunately a quiet person</sub>
 </p>
