@@ -9,8 +9,17 @@
 <p align="center">
 
 <p align="center">
-﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌ <sub><a href="https://novasskzoos.atabook.org/">新𝖻𝗈𝗈𝗄</a></sub> ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+  <sub>
+    ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+    <a href="https://novasskzoos.atabook.org/">新𝑏𝗈𝗈𝗄</a> 
+    &nbsp;⫶&nbsp; 
+    <a href="https://novasskzoos.atabook.org/">𝑝𝗋𝗇𝗌 𝗉𝖺𝗀𝖾</a> 
+    &nbsp;⫶&nbsp; 
+    <a href="https://novasskzoos.atabook.org/">𝑖𝗇𝗌𝗍𝖺</a> 
+    ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+  </sub>
 </p>
+⠀⠀
 <p align="center">
   <sub>𝑖nfp-t . 𝑢nfortunately a quiet person</sub>
 </p>
