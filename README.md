@@ -10,4 +10,15 @@
 
 <p align="center">
 ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
+<p 
+<p align="center">
+  <sub>𝑖nfp-t . 𝑢nfortunately a quiet person</sub>
+</p>
+⠀ ⠀
+<p align="center">
+  <sub>𝑛o dni but i block & hide freely</sub>
+</p>
+⠀ ⠀
+<p align="center">
+  <sub>𝑖'm a very cool person behind the scenes , i guess  . . .</sub>
 </p>
