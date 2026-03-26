@@ -13,9 +13,9 @@
     ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
     <a href="https://novasskzoos.atabook.org/">新𝑏𝗈𝗈𝗄</a> 
     &nbsp;⫶&nbsp; 
-    <a href="https://novasskzoos.atabook.org/">𝑝𝗋𝗇𝗌 𝗉𝖺𝗀𝖾</a> 
+    <a href="https://en.pronouns.page/@novasskzoos">𝑝𝗋𝗇𝗌 𝗉𝖺𝗀𝖾</a> 
     &nbsp;⫶&nbsp; 
-    <a href="https://novasskzoos.atabook.org/">𝑖𝗇𝗌𝗍𝖺</a> 
+    <a href="https://www.instagram.com/novasskzoos/">𝑖𝗇𝗌𝗍𝖺</a> 
     ﹌﹌﹌﹌﹌﹌﹌﹌﹌﹌
   </sub>
 </p>
