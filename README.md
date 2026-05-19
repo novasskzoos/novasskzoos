@@ -21,7 +21,7 @@
 </p>
 ⠀⠀
 <p align="center">
-  <sub>𝑖nfp-t . 𝑢nfortunately a quiet person</sub>
+  <sub>𝑖nfp/enfp . 𝑢nfortunately a quiet person</sub>
 </p>
 ⠀ ⠀
 <p align="center">
@@ -29,5 +29,5 @@
 </p>
 ⠀ ⠀
 <p align="center">
-  <sub>𝑖'm a very cool person behind the scenes , i guess  . . .</sub>
+  <sub>𝑖'm cool , i guess ? . . .</sub>
 </p>
